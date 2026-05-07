@@ -5,6 +5,5 @@ Fahaam Khan (2210990309)
 
 Paper submitted on icmrest and got accepted mail from them. Screenshot uploaded in the repo.
 
-
-
+Type- Review on Research Paper
 
